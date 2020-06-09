@@ -1,1 +1,0 @@
-# nikan0925.github.io
